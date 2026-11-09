@@ -1,1 +1,0 @@
-# Pokeguia-firered
